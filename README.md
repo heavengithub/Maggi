@@ -14,6 +14,6 @@ There are many companies but i prefer Maggi .
 
 5.Put it in your dish .
 
-6.c
+
 
 
